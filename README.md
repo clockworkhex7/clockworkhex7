@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on education and helping people to learn.
 - 📫 Any question or advice, please mail me! hex@berkeley.edu
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I never procrastinate! that's my superpower.
+- ⚡ Fun fact: I am a super morning person! Waking up at 6am is easier than sleeping at 2am for me.
 
 <!---
 clockworkhex7/clockworkhex7 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
